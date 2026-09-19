@@ -1,5 +1,5 @@
-computer science student @ ``the university of manitoba``
-aspiring swe :)
+- computer science student @ ``the university of manitoba``
+- aspiring swe :)
 
 ```
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠑⢶⣦⣄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
